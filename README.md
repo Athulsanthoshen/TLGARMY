@@ -1,2 +1,2 @@
 # TLGARMY
-This is a YouTube channel
+This is My YouTube channel
